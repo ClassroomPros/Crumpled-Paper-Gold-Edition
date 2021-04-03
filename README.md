@@ -1,1 +1,1 @@
-# Crumpled-Paper-Gold-Edition
+# CrumpledPaper
